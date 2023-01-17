@@ -15,6 +15,6 @@ Top des meilleures planches à découper
 1 grille à pâtisserie
 1 grille à pâtisserie
 Top des meilleures grilles à pâtisserie
-balance de cuisine
+3 balance de cuisine
 1 balance de cuisine
 Top des meilleures balances
