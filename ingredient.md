@@ -12,7 +12,7 @@ Les meilleures ventes
 planche à découper
 1 planche à découper
 Top des meilleures planches à découper
-grille à pâtisserie
+1 grille à pâtisserie
 1 grille à pâtisserie
 Top des meilleures grilles à pâtisserie
 balance de cuisine
